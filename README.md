@@ -9,7 +9,7 @@
 
 ## 联系
 
-若有交流技术的想法，可以——
+若有任何疑问，可以——
 
 加我QQ：[398529803](https://qm.qq.com/cgi-bin/qm/qr?k=nh1Na88Ead5K7jSWzgXa2XH1lja_IRNB&noverify=0)
 
